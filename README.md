@@ -1,6 +1,6 @@
 
 🎨 Portal da Literatura — Atividade 02
-***LINK DA PAGINA***: 
+***LINK DA PAGINA***: https://juliarsena.github.io/Outubroatv2/
 
 ---
 
